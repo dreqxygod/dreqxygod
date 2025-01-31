@@ -2,7 +2,7 @@
 <img src="https://count.getloli.com/@dreqxygod?name=dreqxygod&theme=gelbooru-h&padding=7&offset=0&align=center&scale=1&pixelated=1&darkmode=auto"/>
 </p>
 
-# the password is = ([dear god](https://open.spotify.com/playlist/4hQ5n41rqCGCZx5DlkwN8x)) <img src="https://ext.fmkorea.com/files/attach/new4/20240804/7323571387_2895716_02dd27a384a8462aafb16c7c13f58821.jpg" width="80"/> 
+# the password is [dear god](https://open.spotify.com/playlist/4hQ5n41rqCGCZx5DlkwN8x)
 *send me message in Reddit : https://www.reddit.com/user/dreqxygod/*
 
 <img src="https://media.tenor.com/oGdwFujCzNUAAAAM/blue-archive.gif" width="120"/>
